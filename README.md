@@ -4,7 +4,7 @@
 
 I empower organizations to thrive through change.
 
-With a background spanning architecture, entrepreneurship, public service, and real estate operations, I specialize in turning complexity into clarity—through strategy, tech, and data.
+With a background spanning architecture, real estate, entrepreneurship, public service and Artificial Intelligence, I specialize in turning complexity into clarity—through strategy, tech, and data.
 
 🚀 My mission: deliver smart, integrated solutions that boost performance, enhance governance, and unlock lasting value.
 
